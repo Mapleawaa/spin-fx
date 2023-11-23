@@ -1,4 +1,4 @@
-# Nugget speens on H5 / 旋转鸡块 H5
+# Fanxin speens on H5 / 旋转范鑫 H5
 ## English
   Spin Our Kawaii FanXin Sensei
 ## 中文
